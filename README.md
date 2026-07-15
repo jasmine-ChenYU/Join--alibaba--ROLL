@@ -1,4 +1,4 @@
-# Join-Step-Fun
+# Join-roll infra group
 
 Hi, I'm Jasmine from StepFun's HR department, responsible for recruiting for our foundation model team. I'm currently helping Professor Zhang Xiangyu build the team, and your background aligns perfectly with our requirements. We have multiple office locations available. Whether you're planning to explore new opportunities or interested in industry exchange, please feel free to contact me.
 
